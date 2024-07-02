@@ -13,6 +13,6 @@ Administrative Assistance: Assists with administrative tasks such as processing 
 By integrating a virtual assistant chatbot into medical healthcare, providers can improve patient engagement, reduce administrative burdens, and deliver more timely and personalized care. This innovative technology ensures that patients have access to reliable health information and support around the clock, enhancing overall patient satisfaction and outcomes.
 
 
-VIDEO LINK:-https://drive.google.com/uc?id=1--hcE1Loer0L7mkobifdQL0iLPvi-aF_&export=download
+VIDEO LINK:-https://drive.google.com/file/d/1--hcE1Loer0L7mkobifdQL0iLPvi-aF_/view?usp=drivesdk
 
 
